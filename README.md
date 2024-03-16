@@ -1,4 +1,4 @@
-![image](https://github.com/KironmoyMandalBabai/KironmoyMandalBabai/assets/126593616/d36d84b6-5919-4375-9283-b4b2ee2b76e7)
+![MasterHead](https://www.deviantart.com/voidxedis/art/Neon-Dreamscape-1031668510)   
 
 <h1 align="center">Hi 👋, I'm Kironmoy Mandal</h1>
 <h3 align="center">A passionate developer from India</h3>
